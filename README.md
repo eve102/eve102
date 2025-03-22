@@ -5,7 +5,7 @@ if you ever call my seita skin "milkman" dni.
 current hyperfixations : alice in borderland, ace attorney, squid game, grave of the fireflies, studio ghibli, and cookie run: ovenbreak! if you like any of those INT OLS ok thanks😅😅😅😅😅😅😅😅😅😅
 
 I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily😛😛 
-if i ignore your whispers its either i was offtab or afk!! 
+❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
 thinking of what to add💭..
 
