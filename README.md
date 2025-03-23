@@ -7,7 +7,8 @@ current hyperfixations : alice in borderland, ace attorney, squid game, grave of
 I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily😛😛 
 ❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
-thinking of what to add💭..
+
+DNI: problematic people, z10s , i forgot what else to list so brb still i rememebe
 
 
 <!---
