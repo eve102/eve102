@@ -8,7 +8,9 @@ I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily�
 ❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
 
-DNI: problematic people, z10s , soha dni.  i forgot what else to list so brb still i rememebe
+DNI: problematic people, z10s , soha dni.  i forgot what else to list so brb still i rememeb
+
+dont c+h without permission plesse!!
 
 
 <!---
