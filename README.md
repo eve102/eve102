@@ -15,6 +15,5 @@ if you dont know me then dont c+h kindly!!🙏
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
 
-![image](https://github.com/user-attachments/assets/cb9622e4-ba5d-4108-a44b-1fb9949c6ad1)
-all it takes is a single spark.<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/9fdae717-1023-4631-b357-1d4b846eec43" />
-
+![image](https://github.com/user-attachments/assets/10f516f8-5b0a-4b64-a60a-52fab7f46794)
+                           all it takes is a single spark.
