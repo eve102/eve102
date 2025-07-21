@@ -15,10 +15,6 @@ if you dont know me then dont c+h kindly!!🙏
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
 
-https://pin.it/3SuQJJmmS
-in another life , this wouldve been different
+![image](https://github.com/user-attachments/assets/cb9622e4-ba5d-4108-a44b-1fb9949c6ad1)
+all it takes is a single spark.<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/9fdae717-1023-4631-b357-1d4b846eec43" />
 
-<!---
-eve102/eve102 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
