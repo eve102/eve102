@@ -15,6 +15,8 @@ if you dont know me then dont c+h kindly!!🙏
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
 
+https://pin.it/3SuQJJmmS
+in another life , this wouldve been different
 
 <!---
 eve102/eve102 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
