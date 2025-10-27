@@ -11,7 +11,7 @@ I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily�
 
 ⚠️DNI: problematic people, z10s , soha dni.  i forgot what else to list so brb still i rememeb
 
-if you dont know me then dont c+h kindly!!🙏
+C+H freely guys ♥️ !!
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
 
