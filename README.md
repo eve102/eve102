@@ -2,7 +2,7 @@
 if you ever call my seita skin "milkman" dni. 
 
 
-current hyperfixations : alice in borderland, ace attorney, squid game, grave of the fireflies, studio ghibli,LEGEND OF ZELDA. PLS INT IF YOU FW WITH THIS. cookie run: ovenbreak,eddsworld, and apex legends! 
+current hyperfixations : alice in borderland, ace attorney, saiki k!, grave of the fireflies, studio ghibli,LEGEND OF ZELDA. PLS INT IF YOU KNOW THIS. cookie run: ovenbreak,eddsworld, gorillaz! , and apex legends! 
 
 I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily😛😛 
 
