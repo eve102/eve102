@@ -15,5 +15,4 @@ C+H freely guys ♥️ !!
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
 
-![image](https://github.com/user-attachments/assets/10f516f8-5b0a-4b64-a60a-52fab7f46794)
-                           all it takes is a single spark.
+                           all it takes is a leap of faith.
