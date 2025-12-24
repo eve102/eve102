@@ -1,19 +1,24 @@
-🎇 ![image](https://github.com/user-attachments/assets/69fb7735-4fe0-4a11-8d86-c2327bf34e9c)🎇
+![image](https://github.com/user-attachments/assets/b3887bfb-fce1-4d03-bd12-4c3aa02eeede)
+
+
 if you ever call my seita skin "milkman" dni. 
 
 
-current hyperfixations : alice in borderland, ace attorney, saiki k!, grave of the fireflies, studio ghibli,LEGEND OF ZELDA. PLS INT IF YOU KNOW THIS. cookie run: ovenbreak,eddsworld, gorillaz! , and apex legends! 
+current hyperfixations : alice in borderland, ace attorney, saiki k!, grave of the fireflies, studio ghibli,LEGEND OF ZELDA. PLS INT IF YOU KNOW THIS. cookie run: ovenbreak,eddsworld, gorillaz! , apex legends ! AND OVERWATCH INT FREELY IF U PLAY OVERWATCH
 
-I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily😛😛 
+
 
 ❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
 
 ⚠️DNI: problematic people . i forgot what else to list so brb still i rememeb
 
-C+H freely guys ♥️ !!
 
-beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
+beta squad watchers PLEASESEEEEE INTERACT I BEGGG
+                                    ![image](https://github.com/user-attachments/assets/9dcfa00e-c5d5-41c9-b1b5-9b274939ae44)
 
-                                        ![Uploading image.gif…]()
 
+
+
+                                                                                                          
+             
