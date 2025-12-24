@@ -9,10 +9,11 @@ I use like at least 8 skins (3 mostly) so i think youll notice me pretty easily�
 ❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
 
-⚠️DNI: problematic people, z10s.  i forgot what else to list so brb still i rememeb
+⚠️DNI: problematic people . i forgot what else to list so brb still i rememeb
 
 C+H freely guys ♥️ !!
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGGG
 
-                           all it takes is a leap of faith.
+                                        ![Uploading image.gif…]()
+
