@@ -1,10 +1,12 @@
-![image](https://github.com/user-attachments/assets/b3887bfb-fce1-4d03-bd12-4c3aa02eeede)
+![image](https://github.com/user-attachments/assets/a09376f5-cf25-47e5-8a86-c30119590fe4)
+
+
 
 
 if you ever call my seita skin "milkman" dni. 
 
 
-current hyperfixations : alice in borderland, ace attorney, saiki k!, grave of the fireflies, studio ghibli,LEGEND OF ZELDA. PLS INT IF YOU KNOW THIS. cookie run: ovenbreak,eddsworld, gorillaz! , apex legends ! AND OVERWATCH INT FREELY IF U PLAY OVERWATCH
+🌙 current hyperfixations : alice in borderland, ace attorney❗️, saiki k!, grave of the fireflies🌙, studio ghibli,LEGEND OF ZELDA👑. PLS INT IF YOU KNOW THIS. cookie run: ovenbreak,eddsworld🌍, gorillaz!🦍 , apex legends ! AND OVERWATCH⌚️👀 INT FREELY IF U PLAY OVERWATCH
 
 
 
