@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/a09376f5-cf25-47e5-8a86-c30119590fe4)
-
+   ![image](https://github.com/user-attachments/assets/9dcfa00e-c5d5-41c9-b1b5-9b274939ae44)
 
 
 
@@ -17,7 +16,7 @@ if you ever call my seita skin "milkman" dni.
 
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGG
-                                    ![image](https://github.com/user-attachments/assets/9dcfa00e-c5d5-41c9-b1b5-9b274939ae44)
+                                 
 
 
 
