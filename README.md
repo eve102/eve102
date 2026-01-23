@@ -17,9 +17,10 @@ if you ever call my seita skin "milkman" dni.
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGG
 
-  FREE STAMPS!! (as my intrests or lúcio themed)
+ ♻️♻️ FREE STAMPS!! (as my intrests or lúcio themed)
   
-  ![image](https://github.com/user-attachments/assets/2cb1d31c-e555-406f-ad68-6b2eb47e5231)  ![image](https://github.com/user-attachments/assets/f2377f19-cfed-4cb0-afdd-b52b2a1c214d)  <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/1b423b4d-3a65-4232-b986-a0a1d3431c94" />  ![image](https://github.com/user-attachments/assets/4d00ba11-226c-4028-b6c6-e6baa6ab03ac)  ![image](https://github.com/user-attachments/assets/513286ec-3a7d-4f68-b448-9fd9cd7fd50b)  
+  ![image](https://github.com/user-attachments/assets/2cb1d31c-e555-406f-ad68-6b2eb47e5231)  ![image](https://github.com/user-attachments/assets/f2377f19-cfed-4cb0-afdd-b52b2a1c214d)  <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/1b423b4d-3a65-4232-b986-a0a1d3431c94" />  ![image](https://github.com/user-attachments/assets/4d00ba11-226c-4028-b6c6-e6baa6ab03ac)  ![image](https://github.com/user-attachments/assets/513286ec-3a7d-4f68-b448-9fd9cd7fd50b)  ![image](https://github.com/user-attachments/assets/804758b5-8c46-48b1-881f-45dc5dce7684)
+
 
 
 
