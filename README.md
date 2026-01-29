@@ -17,7 +17,7 @@ if you ever call my seita skin "milkman" dni.
 ❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
 
-⚠️DNI: problematic people . i forgot what else to list so brb still i rememeb
+⚠️DNI: problematic people . ppl who pr0sh11p like ew no bye stay away.  i forgot what else to list so brb still i rememeb
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGG
 
