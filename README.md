@@ -7,7 +7,7 @@
 if you ever call my seita skin "milkman" dni. 
 
 
-🌙 current hyperfixations : alice in borderland, ace attorney❗️, avatar the last airbender, saiki k!, grave of the fireflies🌙, studio ghibli,LEGEND OF ZELDA👑. cookie run: ovenbreak,eddsworld🌍, gorillaz!🦍 , apex legends ! beta squad watchers PLEASESEEEEE INTERACT I BEGGG. AND OVERWATCH⌚️👀 INT FREELY IF U PLAY OVERWATCH
+🌙 current hyperfixations : ace attorney❗️, avatar the last airbender, saiki k!, studio ghibli,LEGEND OF ZELDA👑 ,eddsworld🌍, gorillaz!🦍 , apex legends ! beta squad watchers PLEASESEEEEE INTERACT I BEGGG. AND OVERWATCH⌚️👀 INT FREELY IF U PLAY OVERWATCH
 
 
 
