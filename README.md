@@ -6,7 +6,8 @@
 ![image](https://github.com/user-attachments/assets/8ef40ee6-522d-45df-93eb-5143a6c4f759)
 
 
-"apaganda las luces !👾"
+![image](https://github.com/user-attachments/assets/581d2548-9856-45af-a371-87ec99adad72)
+
                                      
 
 
@@ -21,7 +22,7 @@ if you ever call my seita skin "milkman" dni.
 ❗️if i ignore your whispers its either i was offtab or afk!! ❗️
 
 
-⚠️DNI: problematic people . ppl who pr0sh11p like ew no bye stay away.  i forgot what else to list so brb still i rememeb
+⚠️DNI: problematic people . ppl who pr0sh11p like ew no bye stay away. 🧃🧃 (ifykyk.)
 
 beta squad watchers PLEASESEEEEE INTERACT I BEGGG
 
